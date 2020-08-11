@@ -1,0 +1,1 @@
+Esta experiência do Gama Academy está trazendo muito conhecimento, espero absorver todo esse conteúdo nessa jornada!!! Dale Dale XP35!!!
